@@ -17,3 +17,10 @@ Here are some ideas to get you started:
 I'm UI designer，learning blender app、UX Design
 # I like **Motion Design**、**3D Design**、**UX Desigan**
 > less is more
+
+never may i wil fine **someone like you**
+i wish nothing but the best for yoooooooou
+## rooling in the deep 
+break up with my heart
+## hello
+is me come California
